@@ -17,6 +17,10 @@
 
 </p>
 ------
+### Pubg mobile 🎮
+<p align="center">
+  <img src="https://github.com/zeeoneofc/zeeoneofc/blob/zeeoneofc/2047a1zwq1.gif" />
+</p>
 
 # Github Profile:
 
